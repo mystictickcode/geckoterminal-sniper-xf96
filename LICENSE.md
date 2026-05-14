@@ -1,4 +1,4 @@
-# 
+# vip geckoterminal sniper bot | buy-pressure-analysis + auto-buy offers the most advanced geckoterminal sniper bot, with buy-pressure-analysis and auto-buy. Ideal for professional
 
 
 
